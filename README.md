@@ -1,0 +1,1 @@
+# Protoeconomia-resonante-modelando-valor-y-resiliencia-a-traves-de-frecuencias-electromagneticas
